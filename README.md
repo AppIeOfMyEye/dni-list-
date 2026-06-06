@@ -14,6 +14,7 @@ heavy pt skin inspo (mixed feelings)
 weird/inappropriate behavior (unless if ur joking and that you're my close friends, 
 still uncomf if idk you) 
 reaalllyyy dry people (keyword: really) 
+under 13 or younger
 
 strictly dni! 
 
@@ -21,4 +22,3 @@ extremely weird and pervy behavior
 problematic people (instant block/hidden) 
 anyone that forces me to think like them
 misgendering me on purpose
-under 13 or younger
